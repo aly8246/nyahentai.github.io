@@ -4,11 +4,17 @@
 [https://miaoshenshi.com/](https://miaoshenshi.com/)
 
 # 可訪問的中文版網址
+[https://zh.nyahentai.co/](https://zh.nyahentai.co/)
+
+[https://zh.nyahentai.pro/](https://zh.nyahentai.pro/)
+
 [https://zh.nyahentai.pw/](https://zh.nyahentai.pw/)
 
 [https://zh.nyahentai.org/](https://zh.nyahentai.org/)
 
-[https://zh.nyahentai.net/](https://zh.nyahentai.net/)
+[https://zh.nyahentai3.com/](https://zh.nyahentai3.com/)
 
 # 訪問困難的網址
 [https://zh.nyahentai.com/](https://zh.nyahentai.com/)
+
+[https://zh.nyahentai.net/](https://zh.nyahentai.net/)
