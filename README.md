@@ -4,6 +4,8 @@
 [https://miaoshenshi.com/](https://miaoshenshi.com/)
 
 # 可訪問的中文版網址
+[https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
+
 [https://zh.nyahentai.cc/](https://zh.nyahentai.cc/)
 
 [https://zh.nyahentai.pw/](https://zh.nyahentai.pw/)
