@@ -4,17 +4,15 @@
 [https://miaoshenshi.com/](https://miaoshenshi.com/)
 
 # 可訪問的中文版網址
-[https://zh.cathentai.com/](https://zh.cathentai.com/)
+[https://zh.doghentai.com/](https://zh.doghentai.com/)
 
-[https://zh.nyahentai.club/](https://zh.nyahentai.club/)
+[https://zh.cathentai.com/](https://zh.cathentai.com/)
 
 [https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
 
 [https://zh.nyahentai.cc/](https://zh.nyahentai.cc/)
 
 [https://zh.nyahentai.pro/](https://zh.nyahentai.pro/)
-
-[https://zh.nyahentai4.com/](https://zh.nyahentai4.com/)
 
 # 訪問困難的網址
 [https://zh.nyahentai.com/](https://zh.nyahentai.com/)
@@ -30,3 +28,7 @@
 [https://zh.nyahentai.co/](https://zh.nyahentai.co/)
 
 [https://zh.nyahentai.icu/](https://zh.nyahentai.icu/)
+
+[https://zh.nyahentai4.com/](https://zh.nyahentai4.com/)
+
+[https://zh.nyahentai.club/](https://zh.nyahentai.club/)
