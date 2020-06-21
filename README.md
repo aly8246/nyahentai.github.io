@@ -6,7 +6,9 @@
 # 可訪問的中文版網址
 [https://zh.doghentai.com/](https://zh.doghentai.com/)
 
-[https://zh.cathentai.com/](https://zh.cathentai.com/)
+[https://zh.bughentai.com/](https://zh.bughentai.com/)
+
+[https://zh.foxhentai.com/](https://zh.bughentai.com/)
 
 [https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
 
@@ -32,3 +34,5 @@
 [https://zh.nyahentai4.com/](https://zh.nyahentai4.com/)
 
 [https://zh.nyahentai.club/](https://zh.nyahentai.club/)
+
+[https://zh.cathentai.com/](https://zh.cathentai.com/)
