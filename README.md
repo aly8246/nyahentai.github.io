@@ -8,7 +8,7 @@
 
 [https://zh.bughentai.com/](https://zh.bughentai.com/)
 
-[https://zh.foxhentai.com/](https://zh.bughentai.com/)
+[https://zh.foxhentai.com/](https://zh.foxhentai.com/)
 
 [https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
 
