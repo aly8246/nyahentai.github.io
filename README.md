@@ -12,10 +12,6 @@
 
 [https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
 
-[https://zh.nyahentai.cc/](https://zh.nyahentai.cc/)
-
-[https://zh.nyahentai.pro/](https://zh.nyahentai.pro/)
-
 # 訪問困難的網址
 [https://zh.nyahentai.com/](https://zh.nyahentai.com/)
 
@@ -36,3 +32,7 @@
 [https://zh.nyahentai.club/](https://zh.nyahentai.club/)
 
 [https://zh.cathentai.com/](https://zh.cathentai.com/)
+
+[https://zh.nyahentai.cc/](https://zh.nyahentai.cc/)
+
+[https://zh.nyahentai.pro/](https://zh.nyahentai.pro/)
