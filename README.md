@@ -4,11 +4,15 @@
 [https://miaoshenshi.com/](https://miaoshenshi.com/)
 
 # 可訪問的中文版網址
+[https://zh.nyahentai.site/](https://zh.nyahentai.site/)
+
 [https://zh.doghentai.com/](https://zh.doghentai.com/)
 
 [https://zh.bughentai.com/](https://zh.bughentai.com/)
 
 [https://zh.foxhentai.com/](https://zh.foxhentai.com/)
+
+[https://zh.qqhentai.com/](https://zh.qqhentai.com/)
 
 [https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
 
