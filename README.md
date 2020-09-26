@@ -4,17 +4,19 @@
 [https://miaoshenshi.com/](https://miaoshenshi.com/)
 
 # 可訪問的中文版網址
-[https://zh.nyahentai.site/](https://zh.nyahentai.site/)
+[https://zh.nyahentai.xyz/](https://zh.nyahentai.xyz/)
+
+[https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
 
 [https://zh.doghentai.com/](https://zh.doghentai.com/)
 
 [https://zh.bughentai.com/](https://zh.bughentai.com/)
 
-[https://zh.foxhentai.com/](https://zh.foxhentai.com/)
+[https://zh.nyahentai.me/](https://zh.nyahentai.me/)
 
 [https://zh.qqhentai.com/](https://zh.qqhentai.com/)
 
-[https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
+[https://zh.nyabus.com/](https://zh.nyabus.com/)
 
 # 訪問困難的網址
 [https://zh.nyahentai.com/](https://zh.nyahentai.com/)
@@ -40,3 +42,7 @@
 [https://zh.nyahentai.cc/](https://zh.nyahentai.cc/)
 
 [https://zh.nyahentai.pro/](https://zh.nyahentai.pro/)
+
+[https://zh.nyahentai.site/](https://zh.nyahentai.site/)
+
+[https://zh.foxhentai.com/](https://zh.foxhentai.com/)
