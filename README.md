@@ -1,4 +1,4 @@
-# NyaHentai網址發布頁
+# NyaHentai喵紳士網址發布頁
 [https://nyahentai.github.io/](https://nyahentai.github.io/)
 
 [https://miaoshenshi.com/](https://miaoshenshi.com/)
@@ -10,13 +10,13 @@
 
 [https://zh.doghentai.com/](https://zh.doghentai.com/)
 
-[https://zh.bughentai.com/](https://zh.bughentai.com/)
-
 [https://zh.nyahentai.me/](https://zh.nyahentai.me/)
 
 [https://zh.qqhentai.com/](https://zh.qqhentai.com/)
 
 [https://zh.nyabus.com/](https://zh.nyabus.com/)
+
+[https://zh.yyhentai.com/](https://zh.yyhentai.com/)
 
 # 訪問困難的網址
 [https://zh.nyahentai.com/](https://zh.nyahentai.com/)
@@ -46,3 +46,5 @@
 [https://zh.nyahentai.site/](https://zh.nyahentai.site/)
 
 [https://zh.foxhentai.com/](https://zh.foxhentai.com/)
+
+[https://zh.bughentai.com/](https://zh.bughentai.com/)
