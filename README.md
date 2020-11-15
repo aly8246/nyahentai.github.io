@@ -4,6 +4,10 @@
 [https://miaoshenshi.com/](https://miaoshenshi.com/)
 
 # 可訪問的中文版網址
+[https://zha.nyabus.com/](https://zha.nyabus.com/)
+
+[https://zhb.nyabus.com/](https://zhb.nyabus.com/)
+
 [https://zh.nyahentai.xyz/](https://zh.nyahentai.xyz/)
 
 [https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
@@ -13,8 +17,6 @@
 [https://zh.nyahentai.me/](https://zh.nyahentai.me/)
 
 [https://zh.qqhentai.com/](https://zh.qqhentai.com/)
-
-[https://zh.nyabus.com/](https://zh.nyabus.com/)
 
 [https://zh.yyhentai.com/](https://zh.yyhentai.com/)
 
@@ -48,3 +50,5 @@
 [https://zh.foxhentai.com/](https://zh.foxhentai.com/)
 
 [https://zh.bughentai.com/](https://zh.bughentai.com/)
+
+[https://zh.nyabus.com/](https://zh.nyabus.com/)
