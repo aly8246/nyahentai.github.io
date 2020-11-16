@@ -1,7 +1,7 @@
 # NyaHentai喵紳士網址發布頁
-[https://nyahentai.github.io/](https://nyahentai.github.io/)
+[https://trello.com/c/HzN241dq/](https://trello.com/c/HzN241dq/)
 
-[https://miaoshenshi.com/](https://miaoshenshi.com/)
+[https://nyahentai.github.io/](https://nyahentai.github.io/)
 
 # 可訪問的中文版網址
 [https://zha.nyabus.com/](https://zha.nyabus.com/)
