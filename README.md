@@ -54,3 +54,5 @@
 [https://zh.nyabus.com/](https://zh.nyabus.com/)
 
 [https://zh.nyahentai.me/](https://zh.nyahentai.me/)
+
+[https://zh.doghentai.com/](https://zh.doghentai.com/)
