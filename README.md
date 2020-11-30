@@ -4,6 +4,10 @@
 [https://nyahentai.github.io/](https://nyahentai.github.io/)
 
 # 可訪問的中文版網址
+[https://zha.doghentai.com/](https://zha.doghentai.com/)
+
+[https://zhb.doghentai.com/](https://zhb.doghentai.com/)
+
 [https://zha.nyabus.com/](https://zha.nyabus.com/)
 
 [https://zhb.nyabus.com/](https://zhb.nyabus.com/)
@@ -11,10 +15,6 @@
 [https://zh.nyahentai.xyz/](https://zh.nyahentai.xyz/)
 
 [https://zh.nyahentai.fun/](https://zh.nyahentai.fun/)
-
-[https://zh.doghentai.com/](https://zh.doghentai.com/)
-
-[https://zh.nyahentai.me/](https://zh.nyahentai.me/)
 
 [https://zh.qqhentai.com/](https://zh.qqhentai.com/)
 
@@ -52,3 +52,5 @@
 [https://zh.bughentai.com/](https://zh.bughentai.com/)
 
 [https://zh.nyabus.com/](https://zh.nyabus.com/)
+
+[https://zh.nyahentai.me/](https://zh.nyahentai.me/)
